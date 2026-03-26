@@ -1,0 +1,11 @@
+# Something something sand beings
+I exited the vessel and peered onto the canyon, noticing the landmarks and memorizing them in bouts of observation. I ran my handheld computer and it showed me paths that led to total destruction. I briefly pondered what stability that would bring to the solar system, but found none. I took my speeder down to a depression on the surface, and continued scanning. I found what seemed to be a node of federal tech.
+I insisted this was under surveillance, but it felt more like a paranoia. I continued on foot briefly to find lost entrances to substructures that were deeply monolithic.
+
+Through more biotechnical clairvoyance I found a crack through the infrastructure and descended into a monolithic hull that I could only describe as ancient. I enabled my headlamp to see a lost cavern, and I quickly felt watched. I tried to dissociate from the feeling of paranoia, but were quickly overcome by the idea that I was going to lose myself.
+My lamp lit a wall that had a hyroglyphic translation of a lost civilization on it. I tried to compute it, but it was gibberish. Something something about sand beings.
+
+I knew one thing was left to do: it was to escape. I ate my last meal ready to eat at a makeshift stove and cracked up at my handheld computer showing me images of cats behind anti aircraft guns. I felt human again, or at least coping with the physiological stresses of not seeing daylight and engaging with others.
+I knew I had to find a way up again, in this hell of passages and lost spaces that had no merit of any kind. I found a vertical shaft that simulated an elevator but was more like a logistical dropoff point. I used a grapple at the top and it latched and I climbed for what seemed like tens of minutes. Lit by the faint glow of my headlamp, I pulled myself up at the ledge, seeing daylight for the first time in days.
+
+I found my way back to my ship, which was covered in tidal dust and waves of ditritus. I entered my ship via the loading bay instead of pilots side and got behind the piloting seat. I started the engine and set the board computer to launch into orbit. I sigh deeply. I learned of things I didn't know were possible in any sense of science, history or theology. Whatever happened here paved the way to a new universe. I shuffle my music and lay down on my bed.
