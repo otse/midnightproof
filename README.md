@@ -1,4 +1,4 @@
-# Flash Afterhuman
+# Midnight Proof
 ---
 ## 01
 > I exited the vessel and peered onto the canyon, noticing the landmarks and memorizing them in bouts of observation. I ran my handheld computer and it showed me paths that led to total destruction. I briefly pondered what stability that would bring to the solar system, but found none.
